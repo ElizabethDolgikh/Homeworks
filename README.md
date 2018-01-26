@@ -1,7 +1,7 @@
 # HW1 
 ## BASIC INFO ОБО МНЕ
 
-![](http://picresize.com/images/rsz_ih950jomnd0.png)
+![](https://pp.userapi.com/c834302/v834302722/a19ad/I0nA4xjIe8s.jpg)
 
 -------
 * Меня зовут __Лиза__. Full name: [Елизавета Долгих](mailto:@elizabethdolgikh@gmail.com)
@@ -41,9 +41,10 @@
   * С июня 2017 веду английский [здесь](https://vk.com/moscowinners "РОО Ассоциация победителей олимпиад")
   * Иногда еще [вот здесь](https://vk.com/school_olymp_ru?w=wall-124108502_1818 "ЦО Коалиция")
 
-  ![](http://picresize.com/images/rsz_nnpdblxgqby.png "кажется, тут я говорю детям, что они солнышки")
 
-  *(иногда это кто-то фотографирует или снимает на [видео](https://youtu.be/gd-t5j5blC8), но его лучше не смотреть)*
+    ![](https://pp.userapi.com/c834302/v834302044/9a167/fKwqHw3g06w.jpg "кажется, тут я говорю детям, что они солнышки")
+
+    *(иногда это кто-то фотографирует или снимает на [видео](https://youtu.be/gd-t5j5blC8), но его лучше не смотреть)*
 
   * Еще у меня есть маленький, но гордый [паблик](https://vk.com/climbolympus) ВКонтакте, который недавно дорос до *__2300__* подписчиков.
 
